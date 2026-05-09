@@ -1,4 +1,4 @@
-
+Enhance Adobe InDesign for macOS with Adobe InDesign for macOS vip Plugin - blend modes and custom brushes, the #1 plugin. Includes blend modes and custom brushes for a smoother
 
 
 
